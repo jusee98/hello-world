@@ -9,3 +9,4 @@ but real first success was accomplished with 2001 follow up album origin of symm
 building up on that success, album number three sparked about the same reaction among fans and critics.
 their 2006 album features popular singles such as starlight as well as the iconic album closer knights of cydonia.
 after that, muse released four additional albums, all widely ranging in style and experimenting with new sounds and genres. 
+their latest release, titled simulation theory, was followed by a highly successful and visually impressive world tour that featured dancers, smoke, a whole lot of led jackets and a giant inflatable robot skeleton named murph. 
